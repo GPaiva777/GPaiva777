@@ -2,7 +2,7 @@
 
 - 🔭 Atualmente faço faculdade de ciência da computação 
   
-- 🎉Tenho 17 anos 
+- 🎉Tenho 18 anos 
 - 🤔Tecnico em Montagem e Manutenção de Computadores
 - 💬Tecnico em Redes 
 - 📫Tecnico em ADS
